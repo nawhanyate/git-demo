@@ -4,8 +4,4 @@ abcd.
 
 ##Ipsum below
 
-asdjsdsjkdsj
-asasasldjlfkd
-hguuhhh
-
 dfhdfjhdkjfkdfkd
